@@ -1,6 +1,6 @@
 # Anusha Gali 002898649 DSEM Capstone Project (INFO6105)
 
-Video Demo link: https://northeastern-my.sharepoint.com/:v:/g/personal/gali_anu_northeastern_edu/EZQ6Ilr87PZLiLMM3GotxvkBueY_aM_Ew2G_cTMFrCrWfw
+Video Demo link: https://drive.google.com/file/d/1u5mfZZhr_D4jLPKdo9RnJgz4zEuofOeb/view?usp=sharing
 
 Album Link: https://soundcloud.com/anusha-gali/sets/caostone?si=3663196436fb45c986c73581adc0ea9d&utm_source=clipboard&utm_medium=text&utm_campaign=social_sharing
 
